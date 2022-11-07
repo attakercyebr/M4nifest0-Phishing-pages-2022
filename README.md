@@ -27,7 +27,7 @@
 
 # Get a license
 ----------------------
-- 🤡  https://t.me/M4nifest0/645
+- 🤡  https://t.me/M4nifest0/854
 
 # Visit the following channels and sites for more training and tools:
 ----------------------
